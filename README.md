@@ -1,0 +1,1 @@
+# Gspot-Full-Version
